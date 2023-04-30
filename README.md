@@ -2,7 +2,7 @@
 
 
 #### My CV
-https://www.notion.so/e56f594c7722491ca119fc447577e20a
+https://gold-carp-36b.notion.site/e56f594c7722491ca119fc447577e20a
 
 
 <!--
