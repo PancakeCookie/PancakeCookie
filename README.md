@@ -1,8 +1,6 @@
 ### Hi 👋
 
 
-#### My CV
-https://gold-carp-36b.notion.site/e56f594c7722491ca119fc447577e20a
 
 
 <!--
