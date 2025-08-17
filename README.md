@@ -1,6 +1,6 @@
 ### Hi 👋
 
-This is my CV
+Here is my CV and portfolio
 
 https://holistic-binder-176.notion.site/CV-818f3ee247494256a4ffef7a430ccb18
 
